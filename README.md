@@ -1,7 +1,6 @@
 - 👋 hola, mundo 
 - 🌱 me interesa todo lo relacionado
-- con la naturaleza y el misterio y/o lo
-- descosido
+- con la naturaleza y el misterio y/o lo desconosido.
   
 
 
